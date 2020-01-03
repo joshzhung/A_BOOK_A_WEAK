@@ -1,6 +1,8 @@
-防彈成功法則
-GameChangers
+書名
 ======
+防彈成功法則
+(GameChangers)
+
 
 comment
 =======
