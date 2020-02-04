@@ -10,3 +10,5 @@ Reed more than one book a week, And leave what I think is the points.
 2020/01/21 心智鍛鍊：成功實現目標的20堂課
 
 2020/01/30 精準學習
+
+2020/02/04 囚犯的兩難
