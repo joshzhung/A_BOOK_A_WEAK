@@ -15,4 +15,4 @@ Reed more than one book a week, And leave what I think is the points.
 
 2020/02/13 最高睡眠法
 
-2020/02/24 生存的十二條法則
+2020/02/21 生存的十二條法則
