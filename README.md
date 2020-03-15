@@ -18,3 +18,7 @@ Reed more than one book a week, And leave what I think is the points.
 2020/02/21 生存的十二條法則
 
 2020/03/01 番茄工作法
+
+2020/03/07 禮物
+
+2020/03/15 Python 量化投資
