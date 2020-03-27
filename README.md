@@ -22,3 +22,7 @@ Reed more than one book a week, And leave what I think is the points.
 2020/03/07 禮物
 
 2020/03/15 Python 量化投資
+
+2020/03/21 觀葉&多肉栽培事典
+
+2020/03/27 讓每一次離職都加分
